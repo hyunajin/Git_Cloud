@@ -1,0 +1,2 @@
+Study hard
+Cheer up
